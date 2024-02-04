@@ -1,1 +1,1 @@
-# pandodaily.com
+braythwayt.com
